@@ -6,5 +6,4 @@
   
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled35_20260505221926.png" width="300">
 
-<a href="https://sapsarata.atabook.org/">atabook</a>⠀ ⠀ ⠀ ⠀ ⠀ <a
-href="https://rentry.co/snowrabies/">rentry</a>
+<a href="https://rentry.co/snowrabies">
