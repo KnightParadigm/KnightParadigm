@@ -6,9 +6,13 @@
   
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled35_20260505221926.png" width="300">
 
-<a href="https://rentry.co/snowrabies">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164426.png" width="130"> </a>
+⠀ ⠀ ⠀ ⠀ ⠀
 
+<a href="https://rentry.co/snowrabies">
+<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164426.png" width="200"> </a>
+
+⠀ ⠀ ⠀ ⠀ ⠀
 
 <a href="https://sapsarata.atabook.org">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164433.png" width="122"> </a>
+  
+<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164433.png" width="200"> </a>
