@@ -7,3 +7,4 @@
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled35_20260505221926.png" width="300">
 
 <a href="https://rentry.co/snowrabies">
+<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506162328.png" width="120"> </a>
