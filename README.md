@@ -11,7 +11,7 @@
 
 <div align="right"
 
-◌ ⠀   ⠀   ⠀   ⠀  
+◌ ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  
 
 <div align="left"
 
@@ -19,9 +19,15 @@
   ⠀   ⠀<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled38_20260506200433.gif" width="70"> ۫ ׅ</a>   ⠀dℽℓan ⠀  𑄝υ ⠀  𝚂aᎮs  ⠀  𓏼
  
  
-<div align="center"
-<a href="https://rentry.co/snowrabies">
+<div align="left"
+
+ 
+ ⠀   ⠀  <a href="https://rentry.co/snowrabies">
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_0000-06-47_20260506224243.png" width="200"> </a>  ⠀  ֺּׅ𓏽⑅
+
+ <div align="right"
+
+  
 <a href="https://sapsarata.atabook.org">
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_0000-15-32_20260506224417.png" width="200"> </a> ⠀   ◟ ⠀   ⠀  
 
