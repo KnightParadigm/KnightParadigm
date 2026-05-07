@@ -6,7 +6,6 @@
   
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled38_20260506200837.png" width="300">
 
-⠀ ⠀ ⠀ ⠀ ⠀
 
 <div align="left"
 
@@ -15,16 +14,16 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀
 <img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled38_20260506200433.gif" width="70"> </a>  ⠀
 dylan or saps
+ ⠀  
 
 
+<div align="left"
+ <a href="https://rentry.co/snowrabies">
+<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164426.png" width="200"> </a>
+
+ 
 <div align="right"
 <a href="https://sapsarata.atabook.org">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164433.png" width="120"> </a>
+<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164433.png" width="200"> </a>
 
  
-<div align="left"
-
- 
-
- <a href="https://rentry.co/snowrabies">
-<img src="" width="120"> </a>
