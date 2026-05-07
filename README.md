@@ -18,7 +18,8 @@ dylan or saps
 
 <div align="left"
 
- ⠀
+ ⠀${\textsf{\color{#ffffff}LAST UPDATED: April 26th 2026}}$
+ 
  ⠀ ⠀ ⠀ ⠀ ⠀
 
 <a href="https://rentry.co/snowrabies">
