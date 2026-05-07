@@ -19,11 +19,11 @@ dylan or saps
 
 <div align="left"
  <a href="https://rentry.co/snowrabies">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164426.png" width="200"> </a>
+<img src="" width="200"> </a>
 
  
 <div align="right"
 <a href="https://sapsarata.atabook.org">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164433.png" width="200"> </a>
+<img src="" width="200"> </a>
 
  
