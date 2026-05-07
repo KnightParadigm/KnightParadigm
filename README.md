@@ -27,4 +27,4 @@ dylan or saps
  
 
  <a href="https://rentry.co/snowrabies">
-<img src="https://file.garden/adqfSD8ZxlwaPft7/Untitled36_20260506164426.png" width="120"> </a>
+<img src="" width="120"> </a>
